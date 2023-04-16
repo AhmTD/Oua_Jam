@@ -1,4 +1,4 @@
-# Oua_Jam
+# junior to senior
  Charachter: Godette Asset by Count Ouf (itch.io)
 
 Background: Free Vector | Sunset in the city background (freepik.com)
