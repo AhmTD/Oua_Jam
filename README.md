@@ -1,4 +1,4 @@
-# junior to senior
+# junior to senior TOPLAM YAPIM SÜRESİ 48 SAAT
  Charachter: Godette Asset by Count Ouf (itch.io)
 
 Background: Free Vector | Sunset in the city background (freepik.com)
